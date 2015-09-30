@@ -1,0 +1,3 @@
+# Einleitung
+
+Diese Facharbeit beschäftigt sich mit der Entstehtung des Universums und dem Vergleich der theologischen und philosophischen Theorien. Am Rande werden kurz die physischen Hintergrunde erläutert, um dann zu einer eigenen Hypothese zu kommen und diese zu erläutern und zu begründen. Die bereits angesprochene physisikalische Untersuchung des Sachverhalts wird sich auf das mindeste beschränken. Das Herzstück wird das Fazit mit einer Hypothese bilden, die sich aus der Untersuchung der 3 verschiedenen Blickwinkeln und deren Argumenten ergeben wird und somit die begründete Meinung des Autors wiedergeben wird. Außerdem wird der Vergleich der Ansätze eine zentrale Rolle spielen.
